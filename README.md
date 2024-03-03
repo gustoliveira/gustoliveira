@@ -4,6 +4,7 @@
   - Passionate about programming and its ability to help me solve problems
   - Palmeirense and sports lover, mainly football, basketball, and Formula 1
   - Interested in aeronautics, movies and music
+  - I just fell in love with split keyboards
 
 <hr>
 
